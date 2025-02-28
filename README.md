@@ -1,5 +1,5 @@
 ### hi
 ---
-TJ - 17 y/o
+TJ - 18 y/o
 
 i make stuff
